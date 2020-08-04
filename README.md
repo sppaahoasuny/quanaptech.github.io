@@ -1,1 +1,0 @@
-# quanaptech.github.io
